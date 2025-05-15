@@ -1,0 +1,1 @@
+# simboly-so
